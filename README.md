@@ -1,2 +1,2 @@
 # Parcour
-玩Parcour玩的
+玩Parkour玩的
